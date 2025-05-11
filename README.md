@@ -1,0 +1,1 @@
+Ogl jest to projekt szkolny, który robiłem na essie( 2 tygodnie używania jakiś xdd funkcji i uczenia się na yt) (jak coś cześc jest metod jest zabrana  z poradnik z yt) ( dalej nie umiem programować xdddddddddddddd)
